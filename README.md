@@ -4,7 +4,6 @@
 
 **Business. Money. Relationships. Confidence. Purpose. Lifestyle. Opportunity.**
 
----
 
 ### The conversations behind the success.
 
@@ -36,7 +35,6 @@ And who are we becoming while building the life we once dreamed about?
 
 **This is where those conversations begin.**
 
----
 
 ## 🌍 THE EXPERIENCE
 
@@ -57,7 +55,6 @@ It is an experience designed around:
 - Collaboration
 - New opportunities
 
----
 
 # WHAT THEY DON'T TELL YOU
 
@@ -77,7 +74,6 @@ Topics include:
 - Financial mistakes
 - Building generational wealth
 
----
 
 ## 02 — BUSINESS
 
@@ -97,7 +93,6 @@ We talk honestly about:
 - Knowing when to quit
 - Knowing when to persist
 
----
 
 ## 03 — ❤️ THE BALANCE CONVERSATION
 
@@ -120,7 +115,6 @@ We explore:
 - Maintaining yourself while building a business
 - Creating a life beyond work
 
----
 
 ## 04 — 👑 THE WOMAN BEHIND THE BRAND
 
@@ -138,7 +132,6 @@ We explore:
 - Personal growth
 - Becoming the person capable of living the life you're building
 
----
 
 ## 05 — PURPOSE
 
@@ -155,7 +148,7 @@ This conversation explores:
 - Redefining success
 - Building intentionally
 
----
+
 
 ## 06 — 🌍 OPPORTUNITY
 
@@ -167,7 +160,7 @@ The experience creates a space where people can:
 
 **MEET. CONNECT. COLLABORATE. CREATE.**
 
----
+
 
 ## 07 — LIFESTYLE
 
@@ -186,7 +179,6 @@ We explore:
 - Lifestyle design
 - Enjoying the life you're working to create
 
----
 
 # 🥂 THE EXPERIENCE PROGRAMME
 
@@ -289,7 +281,6 @@ What happens when the dream requires sacrifices nobody warned you about?
 And what happens when you finally achieve the goal — but realise you forgot to build a life around it?
 
 **These are the conversations we want to have.**
-
 
 # 👥 WHO SHOULD ATTEND?
 
